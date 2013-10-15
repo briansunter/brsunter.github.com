@@ -1,0 +1,161 @@
+---
+layout: post
+title: "Forty Hours of Travel, First Impressions, and Frogger in Real
+Life."
+date: 2013-07-20 23:19
+comments: true
+categories: travel 
+---
+This is a bit of a long entry, but I haven’t had internet for about 5
+days. My last couple days in town were exactly what I wanted. I got to
+relax after a tough finals week, see everyone at my brother’s graduation
+party, and spend a long day chilling at the beach. Packing everything I
+need for the next 3 months turned out to be surprisingly easy and in a
+way I’m looking forward to living in a more minimalist way.
+
+This trip is the longest I’ve ever travelled in one stretch. Including
+layovers, it took me about forty hours for me to get from Melbourne to
+Chengdu. Thankfully, if college has taught me one thing, it’s how to
+function without sleep. Despite the long travel time, it went just about
+as well as a forty-hour trek could go. There were no delays and many
+people in my group had the same flight itinerary so we all quickly
+became friends. The route we took was from Tampa to Houston to Los
+Angeles to Guanzhong to Chengdu. On the flight from Guanzhong I made my
+first attempt at communicating in Chinese: I asked the Stewardess for a
+beer. She hands me a can of Tsing Tao with a huge smile on her face. I
+couldn’t decide if she was surprised to see such a white guy speaking
+Mandarin or if she thought it was funny to serve alcohol to someone with
+the grammar of a preschooler.
+
+Before I know it, I’m stepping off the plane into the hot humid Chengdu
+International Airport. We are the only white people in sight. I am
+officially a minority. We pick up our bags and search for our driver
+who’s a UF in Chengdu sign. To my surprise, a group of Chinese students
+from our university are there to welcome us. Their English is very good
+and they talked with us about Chengdu. These students were so nice and
+despite going to college on the other side of the world, they didn’t
+seem all that different from UF students. I thought talking with these
+normal university students was the most interesting part of the day. It
+definitely gave me a little perspective on what life is like for the
+average person here. They ask me almost as many questions about America
+as I asked about China. They tell us that they’re freshman, however they
+look so much younger than the freshman in the United States. They look
+only 15 years old at the latest. We pack our bags into the tiny cab and
+hit the road.
+
+
+
+From the beginning, I knew this was going to be no normal cab ride. Our
+driver practically floors it out of the airport parking lot. I have
+never seen driving like I’ve seen today in my whole life. There were
+cars in between lanes, there were cars on the sidewalk, there were cars
+speeding into oncoming traffic, in fact just about any area that could
+fit a car had someone trying to drive their car through it. We encounter
+a traffic jam, so our driver barrels straight into oncoming traffic,
+with cars ahead, and does a quick U-turn into the oncoming lanes exit.
+The whole ride over we missed colliding into other vehicles by mere
+inches. The whole 20-minute ride was accompanied by a cacophony of
+honking, shouting, and sirens. We soon arrive at the university and
+we’re all happy that we survived the ride.
+
+
+
+The first thing we notice is that the dorm and campus look a little
+older and less maintained than they did in the pictures. In fact, this
+place doesn’t look like the pictures at all. It seems that many
+buildings that could have looked really good at one point, have been
+totally unmaintained. This seems to be a common thing in Chengdu. Also,
+our dorm definitely appears to be located in one of the less affluent
+parts of the city. However, the rooms here are decent and most
+importantly they’re well air-conditioned. After sitting in a cramped
+airplane for most the previous two days, we were all eager to explore
+the city. I dropped off my luggage, changed, and immediately headed
+outside to meet the others from the group. We, along with our student
+guides, decide that we’re going to explore the city. The first thing I
+notice while walking around was how much the locals stared us at. I felt
+like I was in Inception and the projections just realized I wasn’t
+supposed to be there. Even in such a big city, there were almost no
+white people in sight. It seems the people who got the most attention
+were people with blonde hair and tall people.
+
+
+
+In Chengdu, people are everywhere and you’re constantly surrounded by a
+flurry of activity. We had many near misses of scooters and motorcycles
+speeding down the sidewalk. Crossing the street literally requires you
+to risk your life. We had a couple people from our group get stuck in
+the middle of a huge intersection with busses and cars speeding by just
+a couple feet away. Unlike in America, cars here DO NOT stop for
+pedestrians, even if they’re only going like 5 mph. Navigating the city
+is a perpetual game of high stakes Frogger.
+
+Soon we all started to get hungry and all yearned for our first taste of
+real Chinese food. We enter a noodle bar in the basement of a shopping
+center. It was here where I first realized how completely helpless I was
+without speaking the language. Almost nobody here speaks English. I’m
+sure relying on speaking for my survival will speed up my learning. I
+see a picture of an appetizing plate on the menu and ask our student
+guide what it is. He tells me its chicken liver mixed with chopped
+habanero peppers. I decide that nuking my stomach with organ meats and
+insanely spicy peppers on the very first day is not a wise idea. I wind
+up just getting some noodles with beef. By default, most of the food
+I’ve had here has been pretty spicy. I love spicy food, so this works
+out for me, however a lot of the people in my group are uncomfortable
+with even the normal amount of spiciness. This was the first dish I’ve
+had with the Sichuan peppercorn, which is an extremely tasty an
+interesting flavor. Its completely indescribable and has a strange
+numbing effect on the mouth.
+
+
+
+Next we head to the historic part of Chengdu. The architecture is
+completely amazing and our student guide, Vivian, tells us that it’s
+over 1000 years old. She laughs when I tell her we have nothing in the
+United States even 300 years old. The district is full of tiny shops
+selling interesting candy and other traditional Chinese things. This
+area is beautiful, but unfortunately it’s stuffed to the brim with
+Chinese tourists. After a while, I take another death defying taxi ride
+back to campus and have one of the most needed showers of my life. Still
+itching for adventure, a group of us decide to go explore the city at
+night and try and find an internet café, since none of us could log on
+in our dorms. We go to another noodle bar and get seriously heckled by
+the owner for our horrible Mandarin pronunciation. One popular type of
+street vendor here that usually comes out during the night are kebab
+stands. They have every type of meat you can imagine, including squid on
+a stick and various types of intestines, laid out on the cart. You pick
+which one you want and they fry it in oil on the spot. Unfortunately at
+this point I was so stuffed from the noodle bar that I couldn’t possibly
+eat any more. The food is so incredibly cheap here that for under one
+usd I got more beef noodles that I could possibly finish. Those of you
+who have seen how much I eat will realize how much food this is. In
+addition to the noodles, I got a half-liter of beer for about 30 cents.
+
+
+
+We get back to the dorms and to my dismay, my key wont open my door.
+Somehow, the key managed to lock the door from the outside, but couldn’t
+unlock it. I freaked out a little bit because the front desk man spoke
+no English whatsoever, and I wasn’t sure how well I could communicate a
+broken key using just hand gestures. However, by some miracle, it just
+so happens that a girl from UF who had been here for a year was in the
+lobby in the middle of the night and could speak perfect Chinese. Soon
+the front deskman, my new friend Courtney, and I head upstairs to fix
+the lock. The front desk guy, nicknamed “older brother”, is the most
+stereotypical Chinese person I have seen so far and is a huge goofball.
+He’s trying to talk to me in Mandarin the whole time and Courtney is
+laughing the whole way up. Apparently he thinks, “I’m a very tall and
+handsome man”. Thankfully we get the door open without any trouble. By
+this point there was a group of UF students along with Courtney and her
+Chinese friends in the hallway. We all talk and joke around for a long
+time. Courtney gives us some great advice and offers to take us shopping
+the next day. We gladly accept her invitation, as having someone who
+speaks the language is invaluable.
+
+
+
+Forgive me if some of this post is a little unclear; its been over two
+days since I’ve slept. Without a doubt, China is the craziest and most
+interesting place I’ve ever been. Nobody here speaks English, so to
+survive I need to pick up Mandarin fast. The first day has been so much
+fun and I’ve met so many great people. I was hoping for a crazy
+adventure this summer and I definitely got one.
